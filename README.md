@@ -1,4 +1,4 @@
-I’m Shruti, a Chartered Accountant passionate about blending finance with technology to build practical solutions using AI and automation.
+I’m Shruti, a qualified Chartered Accountant passionate about blending finance with technology to build practical solutions using AI and automation.
 
 My expertise spans financial accounting, management, financial analysis, and valuation.
 
